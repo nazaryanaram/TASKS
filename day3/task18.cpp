@@ -1,7 +1,0 @@
-
-
-
-
-
-
-// SHUTOV KAVELACNEM (:
